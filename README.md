@@ -96,7 +96,7 @@
 
 ## 🎮 Hobbies & Interests
 
-- Music lover 🎵
+- Music lover and guitar player 🎵
 - Gaming enthusiast(Souls adict) 🎮
 - Big fan of FC Barcelona ⚽
 
